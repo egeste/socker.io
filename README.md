@@ -1,1 +1,1 @@
-![oops](https://giphy.com/embed/GDnomdqpSHlIs)
+![oops](http://media.giphy.com/media/GDnomdqpSHlIs/giphy.gif)
